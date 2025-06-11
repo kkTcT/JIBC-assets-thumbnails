@@ -1,0 +1,1 @@
+# JIBC-assets-thumbnails
